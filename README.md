@@ -7,7 +7,7 @@
 - 📫 How to reach me **arghyaarya3003@gmail.com**
 
 - ⚡ Fun fact **Pun enters a room, kills 10 people. Pun in, 10 dead.**
-<br>
+
 [![@arghya45's Holopin board](https://holopin.me/arghya45)](https://holopin.io/@arghya45)
 
 <h3 align="left">Connect with me:</h3>
